@@ -5,10 +5,27 @@
 - 📫 How to reach me ...
 - ⚡ Fun fact: ...
 
+-  You will be what you will to be;
+Let failure find its false content
+In that poor word ”environment,”
+  But spirit scorns it, and is free,
 
+  It masters time, it conquers space, 
+It cows that boastful trickster Chance,
+And bids the tyrant Circumstance
+  Uncrown and fill a servant’s place.
 
+  The human Will, that force unseen, 
+The offspring of a deathless Soul,
+Can hew the way to any goal,
+  Though walls of granite intervene.
 
-<!---
-JustBaboon/JustBaboon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+  Be not impatient in delay, 
+But wait as one who understands;
+When spirit rises and commands,
+  The gods are ready to obey.
+
+  The river seeking for the sea 
+Confronts the dam and precipice,
+Yet knows it cannot fail or miss;
+  You will be what you will to be!
